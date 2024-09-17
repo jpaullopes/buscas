@@ -1,1 +1,1 @@
-"Referente as atividades de busca do professor Rog‚rio Silva" 
+"Referente as atividades de busca do professor RogÃ©rio Silva" 
